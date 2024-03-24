@@ -1,0 +1,1 @@
+This repository is for me to upload all my assignment for subject BIOINFORMATICS MODELING AND SIMULATION SECB4313-01 e-portfolio. Thanks a lot to our lecturer: DR AZURAH A SAMAH for giving us many support.
